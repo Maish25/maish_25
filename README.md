@@ -15,3 +15,4 @@ Apart from IT am also an Enterprenuer and Investor,during my free time i like go
 I also like playing video games ,playing and following football.
 I like challenging my self in learning new skills and creative projects.
 I'm happy to learn ,share ideas ,and connect with people who are passionate about technology. 
+I believe i will come up or i will own a tech company soon which it does not only benefit me but also the real world we live in.
