@@ -6,7 +6,7 @@ I am a passionate beginner web developer learning how to build responsive,User-f
 MY GOALS ARE:
  1)Build professional and resnposive website.
  2)Learn Javascript and other web technologies.
- 3)Collaborate with other develpoers.
+ 3)Collaborate with other developers.
  4)Grow into a skilled software developer.
  I enjoy teamwork,sharing ideas and learning from others and i also genuinely believe in continous learning and personal growth.
 My school background i went to to Engirneer Academy,proceeded to Ngenia High School currently know as (ST Agustine high school),later joined Zetech University and studied cyber security and forensics.
